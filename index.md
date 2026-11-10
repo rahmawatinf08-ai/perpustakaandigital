@@ -5,7 +5,7 @@ Berikut ini adalah Koleksi yang dimiliki:
 1. [BOP PAUD](ebook/BOP PAUD.pdf) - Kementerian Pendidikan, Kebudayaan, Riset, dan Teknologi (2021)
 2. [2022-Terites n Cipera Makanan Tradisional khas karo](ebook/2022-Terites n Cipera Makanan Tradisional khas karo.pdf) - Kementerian Pendidikan, Kebudayaan, Riset, dan Teknologi Provinsi Aceh (2022)
 3. [Ayo Berwirausaha](ebook/Ayo Berwirausaha.pdf) - Andhi IN (2007)
-4. [Buku Saku Benturan Kepentingan](ebook/Buku Saku Benturan Kepentingan.pdf) Lembaga Ketahanan Nasional RI
+4. [Buku Saku Benturan Kepentingan](ebook/Buku Saku Benturan Kepentingan.pdf) - Lembaga Ketahanan Nasional RI
 5. [Buku Saku Akselarasi dan Peningkatan Pendanaan PAUD dan Kesetaraan](ebook/Buku Saku MB 16.pdf) - Kementerian Pendidikan, Kebudayaan, Riset, dan Teknologi
 6. [Cerita Pendek Anak](ebook/Cerita Pendek Anak - Perpustakaan Irfan Melvi Yendra.pdf) - Melvi Yendra
 7. [Best Website for Writers](ebook/best websites for writers.pdf) - Brian A. Klems
