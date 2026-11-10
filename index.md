@@ -13,6 +13,6 @@ Berikut ini adalah Koleksi yang dimiliki:
 9. [Promoting Your Work and Yourself](ebook/promoting your work and yourself.pdf) - Writer's Market Companion
 10. [Protect from The Sun](ebook/protect from the sun.pdf) - American Cancer Society
 11. [Ringkasan UGC](ebook/Ringkasan UGC.pdf) - Rahmawati Nur Fitri
-    
+
 ---
 *Powered by GitHub Pages*
